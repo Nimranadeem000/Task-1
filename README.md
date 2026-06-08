@@ -1,1 +1,1 @@
-# Requirements and Job description for COD-ALFA internship program 2026
+# Requirements and Job description for CODE-ALFA internship program 2026
